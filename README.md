@@ -1,0 +1,1 @@
+# Testing-Strategy-Quality-Assurance-Plan
